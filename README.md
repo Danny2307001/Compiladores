@@ -1,2 +1,0 @@
-# Árbol de Navidad
-
